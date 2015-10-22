@@ -15,4 +15,6 @@ Vi tror att Norrköping kan bli ännu bättre, och vårt stadsliv ännu enklare 
 
 Därför vill vi att du är med och bidrar till projektet **Smart Norrköping 2020.** Projektet syftar till att involvera Norrköpings Kommun och invånare i processen att göra Norrköping till en mer attraktiv och hållbar stad. 
 
-Vi påbörjar vår resa till en smartare **Norrköping den 23 september kl 08.00 – 12.00, i Strykbrädan, Laxholmstorget 3.**
+Vi påbörjar vår resa till en smartare **Norrköping den 16:e november kl 08.00 – 12.00, i Strykbrädan, Laxholmstorget 3.**
+
+Boka även den **23:e november** för en fortsättningsworkshop . Samma tid, samma plats.
