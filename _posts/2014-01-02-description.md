@@ -17,4 +17,4 @@ Därför vill vi att du är med och bidrar till projektet **Smart Norrköping 20
 
 Vi påbörjar vår resa till en smartare **Norrköping den 16:e november kl 08.00 – 12.00, i Strykbrädan, Laxholmstorget 3.**
 
-Boka även den **23:e november** för en **fortsättningsworkshop.** Samma tid, samma plats.
+Boka även den **25:e november kl 13-17** för en **fortsättningsworkshop,** på samma plats.
